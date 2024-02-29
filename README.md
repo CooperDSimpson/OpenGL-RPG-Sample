@@ -9,5 +9,5 @@ Thank You For Checking Out My Little Project,
 
 
 Cooper D Simpson
-CEO
+Founder, CEO
 (Simpson Industries)
